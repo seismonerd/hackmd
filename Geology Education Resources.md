@@ -38,7 +38,7 @@ Not free, but good ones (in my opinion)
 
 
 
-## Geolgoists Online
+## Geologists Online
 - [Shawn Willsey](https://www.youtube.com/@shawnwillsey)
 - [Myron Cook](https://www.youtube.com/@myroncook)
 - 
